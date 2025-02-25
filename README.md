@@ -1,4 +1,4 @@
-# How To Drink A Glass Of Water
+# How to Drink a Glass of Water
 A comprehensive guide to the act of drinking water, complete with cases for every situation. Anyone can contribute to elaborate on cases or add new ones!
 
 ## Basic Procedure:
@@ -12,7 +12,8 @@ Again, this would not be an ideal glass to drink water out of. However, you coul
 
 ## Case #3: There is no glass
 The best possible way to drink water in this scenario is to first locate where the water is. It will probably have spilled and dissipated considering you poured it onto a flat surface with no container. To look for water, you can search for areas that are darker than the surrounding area. If this area is moist, then it is wet. You could try to suck the water off the surface it is on, though this is not advisable for health and safety reasons.
-Case #4: Someone tries to steal your water
+
+## Case #4: Someone tries to steal your water
 If someone is trying to steal your glass of water, it creates a less-than-ideal situation for drinking said glass of water. Thus, your new objective should be to stop the person. If they already have your water, a surprise attack would be effective yet risky. If you attack the person while they are holding the glass, and the glass (or container of some variety) does not have a lid (see Case #6), the water may spill out. To avoid this outcome, you could theoretically challenge them to a duel. The downside of this decision, besides the amount of skill (and luck) required to successfully win the duel, is the lack of possibilities for guerilla warfare. If organized combat is your strong suit, then a duel is a great pick. Else, you should seek to find a peaceful solution. Possible peaceful solutions include: negotiation, court case, rap battle, etc. Another semi-viable, non-peaceful, and unorganized solution is to vaporize the person with acid.
 
 ## Case #5: The glass is not a glass, but a container
