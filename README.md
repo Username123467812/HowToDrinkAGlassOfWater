@@ -1,4 +1,5 @@
 # How To Drink A Glass Of Water
+A comprehensive guide to the act of drinking water, complete with cases for every situation. Anyone can contribute to elaborate on cases or add new ones!
 
 ## Basic Procedure:
 Maneuver your hand to the glass of water. Clasp the glass and lift it in such a way that the hole points upwards (as in the opposite direction from the Earth’s core). Using your hand, move the glass towards your lips and open your mouth. Lightly rest the top/rim of the glass on your bottom lip and slowly begin to tilt the glass so that the hole faces you, continuing to keep the glass on your bottom lip. Once water starts to flow into your mouth at an adequate rate (by personal preference), stop tilting the glass and keep it at the current angle. You should begin tilting the glass in the opposite direction once you feel like it may not be a good idea to continue drinking. Stop the glass once the angle is such that the hole points directly upwards. Move your hand (and the glass) to the point where the glass is overtop a flat surface, ideally the one the glass was sitting on before you used it to drink water. Let go of the glass.
