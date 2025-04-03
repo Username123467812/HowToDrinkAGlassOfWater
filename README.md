@@ -23,7 +23,7 @@ As long as the unit of liquid storage that the water is in does not have a lid o
 If the container the water is in has a lid, then you will have to open the lid before you drink the water. The easiest way to remove a lid is to grasp it and turn it towards the left (counter-clockwise).
 
 ## Case #7: The lid has a container
-This case is very similar to [Case #6](#case-6-the-container-has-a-lid), but instead of the container having a lid, the lid has a container. In this case, you will probably have your case upside-down. Flip the case so it's no longer upside-down and follow the instructions seen in [Case #6](#case-6-the-container-has-a-lid).
+This case is very similar to [Case #6](#case-6-the-container-has-a-lid), but instead of the container having a lid, the lid has a container. In this case, you will probably have your container upside-down. Flip the container so it's no longer upside-down and follow the instructions seen in [Case #6](#case-6-the-container-has-a-lid).
 
 ## Case #8: The lid does not have a container
 If the lid does not have a container, you probably have the water on the lid. In this case, you have to be very careful to not spill the water. You can simply put the lid up to your mouth and tilt it in a way that lets the water fall, but you have to be extra careful because the lid will not stop the water from falling off.
